@@ -6,7 +6,7 @@ My skypeId: mohsennooriardestani
 
 My Linkedin Account: https://www.linkedin.com/in/mohsen-noori-ardestani
 
-Last Update: 05/11/2022
+Last Update: 08/11/2022
 
 Please download the following PDF files to view the resume
 
